@@ -1,3 +1,5 @@
+la tematica que trabajaremos sera de una joyeria que realiza ventas online
+
 Fuente inspiracion 1: https://www.florina.com.co/?srsltid=AfmBOoolN6cJ0rq2mDJsz7GSH7yTlzwy3_Y_8lc6i2ubk-NelzImnpPN
 
  
